@@ -13,3 +13,8 @@ Resultados Esperados:
 A campanha gerou uma taxa de conversão de 15% entre os clientes segmentados, resultando em um número significativo de conversões.
 Geração de e-mails personalizados para aumentar o engajamento dos clientes.
 
+![image](https://github.com/user-attachments/assets/ae6bbc38-9d27-4164-94e4-0f9b0c5bac73)
+![image](https://github.com/user-attachments/assets/37ac47df-3e93-42e2-99fd-eff888206946)
+
+
+
